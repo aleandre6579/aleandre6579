@@ -27,7 +27,7 @@ I find joy in building captivating websites and 📱apps that resonate with user
 Let's collaborate on exciting projects or just have a chat! Feel free to reach out to me:
 
 - 📧 Email: [alexsimon.code@gmail.com](alexsimon.code@gmail.com)
-- 💼 LinkedIn: [sim-alex](https://www.linkedin.com/in/alex-sim/)
+- 💼 LinkedIn: [linkedin.com/in/sim-alex](https://www.linkedin.com/in/alex-sim/)
 - 💻 GitHub: [aleandre6579](https://github.com/aleandre6579)
 
 <br>
