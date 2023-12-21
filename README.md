@@ -28,7 +28,7 @@ Let's collaborate on exciting projects or just have a chat! Feel free to reach o
 
 - 📧 Email: [alexsimon.code@gmail.com](alexsimon.code@gmail.com)
 - 💼 LinkedIn: [linkedin.com/in/sim-alex](https://www.linkedin.com/in/sim-alex/)
-- 💻 GitHub: [aleandre6579](https://github.com/aleandre6579)
+- 💻 GitHub: [github.com/aleandre6579](https://github.com/aleandre6579)
 
 <br>
 
